@@ -1,2 +1,2 @@
 # Saman
-I love web design and digitalmarketing
+I love web design and digital marketing
